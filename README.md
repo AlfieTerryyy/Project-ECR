@@ -1,0 +1,1 @@
+THis software/instructions is not to be used against anyone or for disruption, disturbance, destroying, or harming any devices if this is used on a device that is not yours you ACEPT that YOU will take the blame for any damages done.
